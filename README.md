@@ -1,1 +1,1 @@
-# kawaiiworld.github.io
+# KawaiiWorld.github.io
